@@ -1,0 +1,1 @@
+th ingredients are egg , oil, vanilla extract ,milk, cake pan and wire rack
